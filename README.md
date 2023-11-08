@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Dev em Otavio Eike😁
+## Bem-vindo(a) ao perfil do Dev Otavio Eike😁
 # Apenas um DEV em um busca do DEV piece☠️
 
  <div>
